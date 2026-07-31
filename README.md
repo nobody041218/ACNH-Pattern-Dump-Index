@@ -1,0 +1,1 @@
+# ACNH-Pattern-Dump-Index
